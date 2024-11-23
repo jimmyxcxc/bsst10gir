@@ -4,7 +4,7 @@
 </head>
 <body>
 
-<a href="https://tinyurl.com/btss212" title="ResimLink - Resim Yükle"img src="https://r.resimlink.com/lvjXe.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://tinyurl.com/btss212"><img src="https://r.resimlink.com/lvjXe.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 </a>
 
 # Bets10 Resmi Giriş Adresimize Hemen Giriş Sağlayın
