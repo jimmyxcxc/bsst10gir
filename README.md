@@ -1,10 +1,10 @@
-#  <a href="https://tinyurl.com/btss212">BETS10 GİRİŞ TIKLA</a>
+#  <a href="http://14l5bets10.com/m/">BETS10 GİRİŞ TIKLA</a>
 <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
 <body>
 
-<a href="https://tinyurl.com/btss212"><img src="https://r.resimlink.com/lvjXe.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="http://14l5bets10.com/m/"><img src="https://r.resimlink.com/lvjXe.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 </a>
 
 # Bets10 Resmi Giriş Adresimize Hemen Giriş Sağlayın
